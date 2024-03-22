@@ -1,2 +1,1 @@
-# i-hate-furries
-I hate furries
+I don't hate furries. My friend told me to make this website.
